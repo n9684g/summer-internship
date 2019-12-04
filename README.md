@@ -1,1 +1,1 @@
-# summer-internship certificate IBM
+# Summer Internship Certificate IBM 
